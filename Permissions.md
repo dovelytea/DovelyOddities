@@ -6,3 +6,8 @@
 - You can draw your characters with my characters in a SFW or semi-lewd setting!
 - Please only draw NSFW of both our characters together if my character is single! ~~I will mention if they are or not!~~
 - Other types of NSFW art are allowed, included but not limited to: Guro, Solo, Lingerie/Pinup, etc!
+- You can totally write fanfiction of my characters, totally would love that!!
+- YES you can kin my characters! 100%!! YES they can also be your F/O, and you can also selfship with them if you'd like to!
+- YES you can make moodboards/stimboards with my characters!
+
+Not saying anyone would, but it would be awesome, and I totally wouldn't mind in the slightest!! Just want people to have fun!
